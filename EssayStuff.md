@@ -4,7 +4,7 @@
 
 - *"The capitalist deserves to exploit surplus value since they bear the risk of opening, maintaining, and improving the business. They bear the cost of starting it and keeping it open. They bear the responsibility for whether the firm fails or succeeds, the workers dont. The value created by the workplace may be created from workers labour, but it is the workplace the capitalist is responsible for which was required to make the surplus value that the capitalist exploits as remuneration for this responsibility."*
   
-  - As in, Society ought to pay it's capitalists. via allowing the exploitation of their workers surplus value. In exchange for taking a risk and operating a business.
+  - As in, Society ought to pay it's capitalists, via allowing the exploitation of their workers surplus value. In exchange for taking a risk and operating a business.
 
 - That is the usual Pro-Exploitation argument. Now, the first response a socialist would give here is that it's a moot point, Gambling shouldnt be a fundamental part of the economy.
   
