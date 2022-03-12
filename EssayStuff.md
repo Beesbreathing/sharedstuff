@@ -20,8 +20,6 @@
 
 - Though, if it seems that the question of exploiting workers is still a hot ticket that must be discussed, lets get into that too. (this parts WIP)
 
-
-
 # Back
 
 - [README](README.md)
