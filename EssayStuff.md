@@ -35,7 +35,9 @@ It is a simple obvious truth that the capitalist take less risks in
 business than their employees, As the workers are the ones who stand to 
 lose their jobs if it goes under, potentially forcing massed of them immediately back into 
 working-class destitution in the same situation where the capitalist may still have saving 
-graces from state and capitalist institution or laws. All this to let alone the risk taken by doing the actual work or
+graces from the capitalist state institutions and laws, as in bailouts/limited liability etc... 
+
+  - All this without mentioning the risk taken by doing the actual work or
  working in an unsafe or unhealthy environment.
   
   - The gravest risk faced by proletarians is imprisonment, enslavement, starvation, and suffering. Risks which they're scarcely rewarded for. The gravest risk faced by capitalists is proletarianization.
