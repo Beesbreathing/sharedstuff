@@ -12,7 +12,7 @@
   
   - Then the question would be, in simplistic words "how many firms will fail, and what should we prepare with to respond to their failure." Which is a much easier question to answer for a planning institution, than the question capitalists must answer "will my firm fail, which firms relavent to me will fail, and what can I do to prevent it." As that question simply has far more things to worry about.
   
-  - A planned economy would mitigate risk, instead of rewarding it. The risk-managing jobs capitalists fulfill are not desired.
+  - A planned economy would mitigate risk, instead of rewarding it. The risk-managing jobs capitalists fulfill are not desired to exist.
   
   - The real conversation to be having is about the efficacy, specifics, and historical examples of planned economies. As well as stuff like whether planned economies would need to engage in exploitation before full automation was reached, and what that should strive to accomplish on the road there.
   
