@@ -19,3 +19,9 @@
   - Thats A very different conversation than this one on the rights of capitalist to exploit. The kind of conversation socialists have with eachother, critiquing the present and dreaming of the future, instead of *conserving* the past.
 
 - Though, if it seems that the question of exploiting workers is still a hot ticket that must be discussed, lets get into that too. (this parts WIP)
+
+
+
+# Back
+
+- [README](readme.md)
