@@ -40,7 +40,7 @@ graces from the capitalist state institutions and laws, as in bailouts/limited l
   - All this without mentioning the risk taken by doing the actual work or
  working in an unsafe or unhealthy environment.
   
-  - The gravest risk faced by proletarians is imprisonment, enslavement, starvation, and suffering. Risks which they're scarcely rewarded for. The gravest risk faced by capitalists is proletarianization.
+  - The common gravest risk faced by proletarians is imprisonment, enslavement, starvation, and suffering. Risks which they're scarcely rewarded for. The common gravest risk faced by capitalists is proletarianization.
 
 # Back
 
