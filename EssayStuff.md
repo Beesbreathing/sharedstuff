@@ -8,7 +8,7 @@
 
 - That is the usual Pro-Exploitation argument. Now, the first response a socialist would probably give here is that it's a moot point, Gambling shouldnt be a fundamental part of the economy.
   
-  - If you could have a planned economy, with a proactive enough planning institution, then you'd have a means of absorbing all risks in the economy, with the economy as a whole, instead of dividing them amongst the capitalists. Such a thing would mitigate the risk and instability brunted here by the capitalists.
+  - If you could have a planned economy, with a proactive enough planning institution or computer system, then you'd have a means of absorbing all risks in the economy, with the economy as a whole, instead of dividing them amongst the capitalists. Such a thing would mitigate the risk and instability brunted here by the capitalists.
   
   - Then the question would be, in simplistic words "how many firms will fail, and what should we prepare with to respond to their failure." Which is a much easier question to answer for a planning institution, than the question capitalists must answer "will my firm fail, which firms relavent to me will fail, and what can I do to prevent it." As that question simply has far more things to worry about.
   
