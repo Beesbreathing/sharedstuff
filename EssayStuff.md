@@ -2,7 +2,7 @@
 
 ### Risk, Surplus value, and the right of capitalists to exploit the workers.
 
-- "The capitalist deserves to exploit surplus value since they bear the risk of opening, maintaining, and improving the business. They bear the cost of starting it and keeping it open. They bear the responsibility for whether the firm fails or succeeds, the workers dont. The value created by the workplace may be created from workers labour, but it is the workplace the capitalist is responsible for which was required to make the surplus value that the capitalist exploits as remuneration for this responsibility."
+- *"The capitalist deserves to exploit surplus value since they bear the risk of opening, maintaining, and improving the business. They bear the cost of starting it and keeping it open. They bear the responsibility for whether the firm fails or succeeds, the workers dont. The value created by the workplace may be created from workers labour, but it is the workplace the capitalist is responsible for which was required to make the surplus value that the capitalist exploits as remuneration for this responsibility."*
   
   - As in, Society ought to pay them via allowing the exploitation of their workers surplus value. In exchange for taking a risk and operating a business.
 
