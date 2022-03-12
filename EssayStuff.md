@@ -1,4 +1,4 @@
-### Do capitalists deserve to exploit workers?
+### Does the risk taken by the capitalist give them the right to exploit workers surplus value?
 
 - *"The capitalist deserves to exploit surplus value since they bear the risk of opening, maintaining, and improving the business. They bear the cost of starting it and keeping it open. They bear the responsibility for whether the firm fails or succeeds, the workers dont. The value created by the workplace may be created from workers labour, but it is the workplace the capitalist is responsible for which was required to make the surplus value that the capitalist exploits as remuneration for this responsibility." or "the capitalist made an investment and this is how they should get their return."*
   
