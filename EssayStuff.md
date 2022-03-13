@@ -8,7 +8,7 @@
   
   - If you could have a planned economy, with a proactive enough planning institution or computer system, then you'd have a means of absorbing all risks in the economy, with the economy as a whole, instead of dividing them amongst the capitalists. Such a thing would mitigate the risk and instability said to be brunted here by the capitalists.
   
-  - Then the question would be, in simplistic words "how many firms will fail, and what should we prepare with to respond to their failure." Which is a much easier question to answer for a planning institution, than the question capitalists must answer "will my firm fail, which firms relavent to me will fail, and what can I do to prevent it." As that question simply has far more things to worry about. 
+  - Then the question would be, in simplistic words "how many firms will fail, and should we prepare to respond to such failures." Which is a much easier question to answer for a planning institution, than the question capitalists must answer "will my firm fail, which firms relavent to me will fail, and what can I do to prevent it." As that question simply has far more things to worry about. 
   
   - Planned economies mitigate risk, instead of rewarding it. The risk-managing jobs capitalists fulfill are not desired to exist.
   
