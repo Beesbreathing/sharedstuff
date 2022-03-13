@@ -33,7 +33,7 @@
   - Under a dictatorship of the bourgeoisie, Liberal Democracies as most are. Under these Democracies for the rich, which are Ruled by the business class. 
 It is a simple obvious truth that the capitalist take less risks in 
 business than their employees, As the workers are the ones who stand to 
-lose their jobs if it goes under, potentially forcing massed of them immediately back into 
+lose their jobs if it goes under, potentially forcing masses of them immediately back into 
 working-class destitution in the same situation where the capitalist may still have saving 
 graces from the capitalist state institutions and laws, as in bailouts/limited liability etc... 
 
