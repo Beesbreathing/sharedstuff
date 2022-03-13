@@ -28,7 +28,7 @@
   
   - So this leads us to a second question, if the threat of joining the working class makes being a capitalist so risky. Then how could it be said that the workers aren't taking any risks for the business. 
   
-  - Being a worker is inherently leagues more risky than being a capitalist. Society is setup in favor of business over workers. It has more institutions and protections, legal and more. All those protections and institutions which are conceded too the workers have been won through hard and violent struggles between the working class Proletariat and the Ruling Class bourgeoisie and their Petty bourgeoisie lackies.
+  - Being a worker is inherently leagues more risky than being a capitalist. Society is setup in favor of business over workers. It has more institutions and protections, legal and more. Any  protections or institutions which are conceded to the workers have been won through hard and violent struggles between the working class Proletariat and the Ruling Class bourgeoisie and their Petty bourgeoisie lackies.
   
   - Under a dictatorship of the bourgeoisie, Liberal Democracies as they're sometimes called. Under Democracies for the rich which are Ruled by the business class. 
 It is a simple obvious truth that the capitalist take less risks in 
