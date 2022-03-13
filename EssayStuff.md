@@ -12,7 +12,7 @@
   
   - Planned economies mitigate risk, instead of rewarding it. The risk-managing jobs capitalists fulfill are not desired to exist.
   
-  - The real conversation to be having is about things like whether planned economies would need to engage in exploitation before full automation was reached, whether non-aggregate markets can be planned effectly or not, what the road to the abolition of exploitation really looks like, Etc.. As in the efficacies, shortcomings, specifics, and historical examples of planned economies. 
+  - The real conversation to be having is about things like whether planned economies would need to engage in exploitation before full automation was reached, whether non-aggregate markets can be planned effectively or not, what the road to the abolition of exploitation really looks like, Etc.. As in the efficacies, shortcomings, specifics, and historical examples of planned economies. 
   
   - Those are very different conversations than this one on the rights of capitalist to exploit people. The kinds of conversations socialists have with eachother. Critiquing the present and dreaming of the future, instead of *conserving* the past.
 
