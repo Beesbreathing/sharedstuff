@@ -32,18 +32,29 @@
   
   - Being a worker is inherently leagues more risky than being a capitalist. Society is setup in favor of business over workers. It has more institutions and protections, legal and more. Any  protections or institutions which are conceded to the workers have been won through hard and violent struggles between the working class Proletariat and the Ruling Class bourgeoisie and their Petty bourgeoisie lackies.
   
-  - Under a dictatorship of the bourgeoisie, under Liberal Democracies. Under these Democracies for the rich, which are Ruled by the business class. 
-It is a simple obvious truth that the capitalist take less risks in 
-business than their employees, As the workers are the ones who stand to 
-lose their jobs if it goes under, potentially forcing masses of them immediately back into 
-working-class destitution in the same situation where the capitalist may still have saving 
-graces from the capitalist state institutions and laws, as in bailouts/limited liability etc... 
-
-  - All this without mentioning the risk taken by doing the actual work or
- working in an unsafe or unhealthy environment.
+  - Under a Dictatorship of the Bourgeoisie, under Liberal Democracies. Under these Democracies for the rich, which are Ruled by the business class. It is a simple obvious truth that the capitalist take less risks in 
+    business than their employees, As the workers are the ones who stand to 
+    lose their jobs if it goes under, potentially forcing masses of them immediately back into 
+    working-class destitution in the same situation where the capitalist may still have saving 
+    graces from the capitalist state institutions and laws, as in bailouts/limited liability etc... 
   
-  - The common gravest risk faced by the proletariat is physical or mental ailment or injury, imprisonment, enslavement, starvation, and suffering. Risks which they're scarcely rewarded for. The common gravest risk faced by capitalists is proletarianization.
+  - All this without mentioning the risk taken by doing the actual work or
+    working in an unsafe or unhealthy environment.
+  
+  - The common gravest risk faced by proletariat is physical or mental ailment or injury, imprisonment, enslavement, starvation, and suffering. Risks which they're scarcely rewarded for. The common gravest risk faced by capitalists is proletarianization.
 
-# Back
-
-- [README](README.md)
+- In Summary:
+  
+  - The capitalist is said to be justified in exploiting workers for having risked time and capital in the workplace. This is a moot point as gambling shouldnt be a fundamental part of the economy.
+  
+  - A planned economy would allow the collective risks of all firms to be absorbed by the whole, where our current economy divides them amongst capitalists to bet on with these investments.
+  
+  - The grave risk the capitalists are taking is losing their investment, becoming indebted, working paycheck to paycheck, and approaching destitution. Sound familiar? They risk joining the working class.
+  
+  - The Workers take tremendous risk in their workplaces. Whether it be an unsafe environment for mental & physical health. Or the business winds up failing and they lose their jobs, Which to a not-insignificant part of the proletariat, of the working class. Will end in homelessness, imprisonment, death, and death of families.
+  
+  - The Capitalists have a myriad of institutions/laws to mitigate their personal risks, where workers have very few. 
+  
+  - The institutions and laws the Workers do have in their favor are under constant repeal and attack by capitalist rule, all of which were won from difficult and violent class struggle, through hard built organizating.
+  
+  - As the Capitalists are rewarded for taking risks, and for pursuing their class interests. Where the Proletariat is punished, for the doing same.
