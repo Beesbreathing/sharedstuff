@@ -22,7 +22,7 @@ However, we're forgetting something. Let me ask you another question. If I have 
 Exactly right, I would continuously lose market share until ultimately running out of business. This is because prices are not determined by my choices as any owner, but by (points to whiteboard) Supply and Demand.
 So if you can't just raise prices, then you would have to take money from that pool mentioned earlier which is spent on the business' operating costs and reinvested into it. If this is the case for all companies then how is it possible any company could outcompete me?
 
-We're assuming here that it was the rise in the minimum wage responsible earlier in the company going out of business because they couldn't afford the new cost, so if all companies were equal before that rise then what did one company do differently which allowed them to outgrow the company which accounted for the rise in wages by taking from the money they needed to grow?
+We're assuming here that it was the rise in the minimum wage responsible earlier for the company going out of business because they couldn't afford the new cost, so if all companies were equal before that rise then what did one company do differently which allowed them to outgrow the company which accounted for the rise in wages by taking from the money they needed to grow?
 
 Simple, the competitor didn't use those funds, rather they used the funds which become profits, in other words, they made less profit for Shareholders/Owners pocket's because they had to spend some of it on the higher cost of wages.
 
