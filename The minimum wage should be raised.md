@@ -54,6 +54,7 @@ Afterall even the lowest paying jobs must be worth more, if you didn't make more
 ---
 
 **"but won't raising the minimum wage kill small businesses who truly cannot afford to pay them?"**
+
 Morally speaking, a business which cannot pay a living wage surely deserves no place in a just society.
 Economically speaking, Large corporations and the development of more effective machinery and means of organizing/communicating which come at much greater costs are already driving small businesses into obsolescence, Marxists have no occasion nor need to kill small business, it's happening anyway. Raising the minimum wage will ease the pain of this process as we transition to a world of only large corporations nearing the end of capitalism's life.
 
