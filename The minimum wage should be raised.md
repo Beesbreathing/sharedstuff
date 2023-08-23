@@ -35,7 +35,7 @@ But necessities are not the only kind of commodity. There are also luxuries, and
 
 So an increase in the availability of necessities to the minimum wage working class comes at the cost of the availability of luxuries to the well off and wealthy, Which is what we want, more people having a comfortable life at the cost less people having an exuberant one. The only people who don't want this are the well off and wealthy, who have far greater funds to disseminate their ideas and interests than the minimum wage workers. So is it any wonder this argument against the minimum wage is so popular?
 
-That all being the case, I have one question left to answer. To what degree should we increase the minimum wage? Simple, you would want to increase the minimum wage until the minimum wage working class began being able to purchase luxuries, proving they consume enough necessities to live and reproduce comfortably.
+That all being the case, I have one question left to answer. To what degree should we increase the minimum wage? Simple, you would want to increase the minimum wage until the minimum wage working class began purchasing mostly luxuries, proving they consume enough necessities to live and reproduce comfortably.
 
 ## Some Notes on Other Arguments.
 
