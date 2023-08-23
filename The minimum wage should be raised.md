@@ -5,17 +5,17 @@ Before I start let me ask you a question, What are the market forces which deter
 
 Absolutely correct. \*writes supply/demand on the corner of the whiteboard*
 
-So, today im going to attempt to answer the following questions, *Should the minimum wage be increased? and to what degree?*
+So, today i'm going to attempt to answer the following questions, *Should the minimum wage be increased? and to what degree?*
 
 We'll start off with the argument against doing so, that goes as follows:
 
-**"If the minimum wage is increased, then inflation will follow, this is because companies with minimum wage employees will now have a higher cost of running their business and must increase their prices to accomodate it."**
+**"If the minimum wage is increased, then inflation will follow, this is because companies with minimum wage employees will now have a higher cost of running their business and must increase their prices to accommodate it."**
 
 Seems reasonable enough, Companies make a certain amount of money and from this money they must return some for the costs of running their business and reinvestment to grow it, the rest is profit which is distributed as executive/owner salaries and shareholder dividends.
 
-If the company were to not raise prices and instead use a portion of the money which is spent on running the other aspects of the business on the increased costs in wages then they would not be able to cover the costs of operating and close. If they were to take this money from that which is reinvested in the company then they would cease to grow as much and be outcompeted by the companies which did not do this.
+If the company were to not raise prices and instead use a portion of the money which is spent on running the other aspects of the business on the increased costs in wages then they would not be able to cover the costs of operating and have to close. If they were to take this money from that which is reinvested in the company then they would cease to grow as much and be outcompeted by the companies which did not do this.
 
-However we're forgetting something. Let me ask you another question, If I have a company and competitors who all sell their products for the same price, and I were to raise my prices, what would our consumers do?
+However, we're forgetting something. Let me ask you another question. If I have a company and competitors who all sell their products for the same price, and I were to raise my prices, what would our consumers do?
 
 **"purchase from the cheaper companies more often"**
 
@@ -26,9 +26,9 @@ We're assuming here that it was the rise in the minimum wage responsible earlier
 
 Simple, the competitor didn't use those funds, rather they used the funds which become profits, in other words, they made less profit for Shareholders/Owners pocket's because they had to spend some of it on the higher cost of wages.
 
-So, back to supply and demand. Now that we know prices aren't increasing willy nilly, and the minimum wage workers have a higher sum of money, then naturally they are going to be buying more necessities, we'll assume that since beforehand the workers in question could not afford all of their necessities they need, that they will continue buying as many as they can until they reach the required amount to sustain adequate life and the reproduction of workers (their children's lives)
+So, back to supply and demand. Now that we know prices aren't increasing willy-nilly, and the minimum wage workers have a higher sum of money, then naturally they are going to be buying more necessities, we'll assume that since beforehand the workers in question could not afford all of their necessities they need, that they will continue buying as many as they can until they reach the required amount to sustain adequate life and the reproduction of workers (their children's lives)
 
-This means that the more money the minimum wage working class recieves *the higher the demand of necessities*. This means necessity producing companies have an occasion to increase the supply of necessities to meet this demand, this increases the rate at which they grow as they're receiving more money and a larger portion of the market the more and more workers buy from them.
+This means that the more money the minimum wage working class receives *the higher the demand of necessities*. This means necessity producing companies have an occasion to increase the supply of necessities to meet this demand, this increases the rate at which they grow as they're receiving more money and a larger portion of the market the more and more workers buy from them.
 
 But necessities are not the only kind of commodity. There are also luxuries, and the companies which produce luxuries have no such increase in their demand, further, since the workers (as a whole) cannot afford many luxuries until they are satiated on necessities, the well off and wealthy are the people purchasing the majority of luxuries, and since the wealthy had to take from their own pockets to pay for the raise in wages, the demand for luxuries may even be falling if not staying the same. This means that less and less luxuries will be purchased resulting in luxury producing companies growing slower, compared to the necessity producing companies growing faster.
 
@@ -38,21 +38,24 @@ That all being the case, you would want to increase the minimum wage until the m
 
 ## Some Notes on Other Arguments.
 
-**"but what if the business were to cut costs? for instance cutting the wages of non minimum-wage workers."**
+**"But what if the business were to cut costs? for instance cutting the wages of non minimum-wage workers."**
 
-The labor power of those workers is a commodity bought by the owners, the price of commodities as mentioned is determined by supply and demand. If the owner cuts the wage of higher wage employees they will come to seek new employment at afformentioned companies who payed for the wages out of their profits, remember those companies are growing due to increased demand and therefor have occasion to hire employees.
+The labor power of those workers is a commodity bought by the owners, the price of commodities as mentioned is determined by supply and demand. If the owner cuts the wage of higher wage employees they will come to seek new employment at aforementioned companies who payed for the wages out of their profits, remember those companies are growing due to increased demand and therefore have occasion to hire employees.
 
 ---
 
-**"but won't workers who make more than the minimum wage be slighted by the fact that less skilled workers are making more now?"**
+**"But won't workers who make more than the minimum wage be slighted by the fact that less skilled workers are making more now?"**
 
-If I as an engineer (for instance) make 36/h and the minimum wage is increased to 30/h, then I may just as well demand that "since minimum wage jobs are worth 30/h you should pay me what im actually worth or ill quit and get one of those easier jobs"
+If I as an engineer (for instance) make 36/h and the minimum wage is increased to 30/h, then I may just as well demand that "since minimum wage jobs are worth 30/h you should pay me what im actually worth or i'll quit and get one of those easier jobs"
 
-In this way a raise in the minimum wage results in a raise of higher wage workers as well. So long as they don't fall for the lie that those jobs aren't actually worth that much. [if you didn't make more money for your employer than they pay you, they'd have no reason to hire you]
+In this way a raise in the minimum wage results in a raise of higher wage workers as well. So long as they don't fall for the lie that those jobs aren't actually worth that much. 
+Afterall your job must be worth more, if you didn't make more money for your employer than they lose in paying you, they'd have no reason to hire you.
 
 ---
 
 **"but won't raising the minimum wage kill small businesses who truly cannot afford to pay them?"**
 Morally speaking, a business which cannot pay a living wage surely deserves no place in a just society.
 
-Economically speaking, Large corporations and the development more effective machinery and means of organizing/communicating which come at much greater costs are already driving small businesses into obselescense, Marxists have no occasion nor need to kill small business, it's happening anyway. Raising the minimum wage will ease the pain of this process as we transition to a world of only large corporations nearing the end of capitalism's life.
+Economically speaking, Large corporations and the development of more effective machinery and means of organizing/communicating which come at much greater costs are already driving small businesses into obsolescence, Marxists have no occasion nor need to kill small business, it's happening anyway. Raising the minimum wage will ease the pain of this process as we transition to a world of only large corporations nearing the end of capitalism's life.
+
+
