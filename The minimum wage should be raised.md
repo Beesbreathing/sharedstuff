@@ -49,7 +49,7 @@ The exception being workers who produce luxuries, the luxury producing companies
 
 If I was an skilled worker making 30/h and the minimum wage was increased to 30/h, then I may just as well demand that "since minimum wage jobs are worth 30/h you should pay me what I'm actually worth or I'll quit and get one of those *"easier"* jobs"
 In this way a raise in the minimum wage results in a raise of higher wage workers as well. So long as they don't fall for the lie that those jobs aren't actually worth that much. 
-Afterall your job must be worth more, if you didn't make more money for your employer than they lose in paying you, they'd have no reason to hire you.
+Afterall even the lowest paying jobs must be worth more, if you didn't make more money for your employer than they lose in paying you, they'd have no reason to hire you.
 
 ---
 
