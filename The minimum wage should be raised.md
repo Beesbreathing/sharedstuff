@@ -1,7 +1,7 @@
 ## A Counter to an Argument Against Raising the Minimum Wage
 Before I start let me ask you a question, What are the market forces which determine prices?
 
-"easy, Supply and Demand"
+**"easy, Supply and Demand"**
 
 Absolutely correct *writes supply/demand on the corner of the board*
 
@@ -9,7 +9,7 @@ So, today im going to attempt to answer the following questions, *Should the min
 
 We'll start off with the argument against doing so, that goes as follows:
 
-"If the minimum wage is increased, then inflation will follow, this is because companies with minimum wage employees will now have a higher cost of running their business and must increase their prices to accomodate it."
+**"If the minimum wage is increased, then inflation will follow, this is because companies with minimum wage employees will now have a higher cost of running their business and must increase their prices to accomodate it."**
 
 Seems reasonable enough, Companies make a certain amount of money and from this money they must return some for the costs of running their business and reinvestment to grow it, the rest is profit which is distributed as executive/owner salaries and shareholder dividends.
 
@@ -17,7 +17,7 @@ If the company were to not raise prices and instead use a portion of the money w
 
 However we're forgetting something. Let me ask you another question, If I have a company and competitors who all sell their products for the same price, and I were to raise my prices, what would our consumers do?
 
-"purchase from the cheaper companies more often"
+**"purchase from the cheaper companies more often"**
 
 Exactly right, I would continuously lose market share until ultimately running out of business. This is because Prices are not determined by my choices as any owner, but by (points to whiteboard) Supply and Demand.
 So if you can't just raise prices, then you would have to take money from that pool mentioned earlier which is spent on the business' operating costs and reinvested into it. If this is the case for all companies then how is it possible any company could outcompete me?
@@ -38,13 +38,13 @@ That all being the case, you would want to increase the minimum wage until the m
 
 ## Some Notes on Other Arguments.
 
-"but what if the business were to cut costs? for instance cutting the wages of non minimum-wage workers."
+**"but what if the business were to cut costs? for instance cutting the wages of non minimum-wage workers."**
 
 The labor power of those workers is a commodity bought by the owners, the price of commodities as mentioned is determined by supply and demand. If the owner cuts the wage of higher wage employees they will come to seek new employment at afformentioned companies who payed for the wages out of their profits, remember those companies are growing due to increased demand and therefor have occasion to hire employees.
 
 ---
 
-"but won't workers who make more than the minimum wage be slighted by the fact that less skilled workers are making more now?"
+**"but won't workers who make more than the minimum wage be slighted by the fact that less skilled workers are making more now?"**
 
 If I as an engineer (for instance) make 36/h and the minimum wage is increased to 30/h, then I may just as well demand that "since minimum wage jobs are worth 30/h you should pay me what im actually worth or ill quit and get one of those easier jobs"
 
@@ -52,7 +52,7 @@ In this way a raise in the minimum wage results in a raise of higher wage worker
 
 ---
 
-"but won't raising the minimum wage kill small businesses who truly cannot afford to pay them?"
+**"but won't raising the minimum wage kill small businesses who truly cannot afford to pay them?"**
 Morally speaking, a business which cannot pay a living wage surely deserves no place in a just society.
 
 Economically speaking, Large corporations and the development more effective machinery and means of organizing/communicating which come at much greater costs are already driving small businesses into obselescense, Marxists have no occasion nor need to kill small business, it's happening anyway. Raising the minimum wage will ease the pain of this process as we transition to a world of only large corporations nearing the end of capitalism's life.
