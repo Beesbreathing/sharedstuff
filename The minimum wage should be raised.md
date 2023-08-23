@@ -5,7 +5,7 @@ Before I start let me ask you a question, What are the market forces which deter
 
 Absolutely correct. \*writes supply/demand on the corner of the whiteboard*
 
-So, today i'm going to attempt to answer the following questions, *Should the minimum wage be increased? and to what degree?*
+So, today I'm going to attempt to answer the following questions, *Should the minimum wage be increased? and to what degree?*
 
 We'll start off with the argument against doing so, that goes as follows:
 
