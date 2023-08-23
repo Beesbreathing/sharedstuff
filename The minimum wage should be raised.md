@@ -15,7 +15,7 @@ Seems reasonable enough, Companies make a certain amount of money and from this 
 
 If the company were to not raise prices and instead use a portion of the money which is spent on running the other aspects of the business on the increased costs in wages then they would not be able to cover the costs of operating and have to close. If they were to take this money from that which is reinvested in the company then they would cease to grow as much and be outcompeted by the companies which did not do this.
 
-However, we're forgetting something. Let me ask you another question. If I have a company and competitors who all sell their products for the same price, and I were to raise my prices, what would our consumers do?
+However, we're forgetting something. Let me ask you another question. If I have a company with competitors and we all sell our products for the same price. If I were to raise my prices, what would our consumers do?
 
 **"purchase from the cheaper companies more often"**
 
