@@ -27,7 +27,7 @@ To put that another way. We're assuming here that it was the rise in the minimum
 
 Simple, the competitor didn't use those funds, rather they used the funds which become profits, in other words, they made less profit for Shareholders/Owners pocket's because they had to spend some of it on the higher cost of wages.
 
-So, back to supply and demand. Now that we know prices aren't increasing willy-nilly, and the minimum wage workers have a higher sum of money, then naturally they are going to be buying more necessities, we'll assume that since beforehand the workers in question could not afford all of their necessities they need, that they will continue buying as many as they can until they reach the required amount to sustain adequate life and the reproduction of workers (their children's lives)
+So, back to supply and demand. Now that we know prices aren't increasing willy-nilly, and the minimum wage workers have a higher sum of money, then naturally they are going to be buying more necessities, we'll assume that since beforehand the workers in question could not afford all of the necessities they need, that they will continue buying as many as they can until they reach the required amount to sustain adequate life and the reproduction of workers (their children's lives)
 
 This means that the more money the minimum wage working class receives *the higher the demand of necessities*. This means necessity producing companies have an occasion to increase the supply of necessities to meet this demand, this increases the rate at which they grow since they're receiving more money and a larger portion of the market the more and more workers buy from them.
 
