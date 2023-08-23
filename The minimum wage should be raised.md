@@ -3,7 +3,7 @@ Before I start let me ask you a question, What are the market forces which deter
 
 **"easy, Supply and Demand"**
 
-Absolutely correct.
+Absolutely correct. Keep that in mind.
 
 So, today I'm going to attempt to answer the following questions, *Should the minimum wage be increased? and to what degree?*
 
